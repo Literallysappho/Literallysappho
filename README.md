@@ -1,0 +1,4 @@
+-  Hi, I’m Ravy
+-  I’m interested in modeling 👀
+-  I’m currently learning coding & modeling
+-  Talk to me on twitter: https://twitter.com/literallysappho
